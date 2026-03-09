@@ -1,0 +1,2 @@
+# yga_dersi
+açıklama
